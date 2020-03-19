@@ -1,4 +1,4 @@
-# Ínicio
+# BrisaScience
 
 ## Como brisamos
 
