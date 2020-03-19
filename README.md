@@ -1,3 +1,8 @@
+## Como brisamos
+
+Exercer curiosidade é a forma de brisar. Acreditamos na ciência cidadã aberta e democrática como fundamental, e que esta passa por um proceder transparente e divertido sem detrimentos ao uso de técnicas e formalismos. Somos a BrisaScience, um grupo de estudos democrático que busca devolver a alegria para a produção concreta de conhecimento.
+
+
 ## Brisas
 
 ### Sentimento histórico do Congresso Nacional desde o Império
